@@ -1,0 +1,1 @@
+# tutaj sie zapytac o chuj chodzi z tym portem 80 
